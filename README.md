@@ -1,6 +1,6 @@
 # Несколько строк обо мне любимом.
 
-![фото](https://drive.google.com/file/d/1GVvtiGuiE-WJWhaMW7S3zrkP42Rj2w9E/view?usp=share_link)
+![фото](https://sun9-10.userapi.com/impg/8AtfP1lfdfpjloacU2cqgwMaQ0pUuJEMsdpFRw/xXEzvfOBcD8.jpg?size=640x640&quality=95&sign=0a9489664e808b33ef9feb444ff07964&type=album)
 
 ## Краткое био
 1. Родился и живу в городе Владимире вот уже 32 года.
